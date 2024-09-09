@@ -1,4 +1,4 @@
-## Hi there 👋
+## não sei escrever?acho que sei
 
 <!--
 **elgatodebosta/elgatodebosta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
